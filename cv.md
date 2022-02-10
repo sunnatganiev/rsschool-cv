@@ -22,4 +22,4 @@ I have created some websites which you can check throug this links**
 10. [Forkify-MVC (***MVC***)](https://github.com/sunnatganiev/forkify) 
 
 *I have studied at Westminster International University in Tashkent and finished in 2021. 
-My major was Business Information System.*
+My major was Business Information System. Before taking an entrance exam for university I took an IELTS exam and got score 5.5, and in 4 years during my study I improved my enlish skills like speaking listening and reading. Now I am really confident on ths language.*
