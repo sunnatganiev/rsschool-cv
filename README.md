@@ -1,1 +1,1 @@
-# rsschool-cv
+https://sunnatganiev/rsschool-cv/cv
